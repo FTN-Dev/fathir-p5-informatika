@@ -1,1 +1,0 @@
-# fathir-p5-informatika
